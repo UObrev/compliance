@@ -5,7 +5,7 @@ San Diego, California, USA
 Compliance, Regulatory Governance & Corporate Asset Oversight  
 
 ## Education
-- MBA, UCLA Anderson Graduate School of Business (1986–1988)  
+- MBA, UCLA Anderson Graduate School of Management (1986–1988)  
 - BA, National Taiwan University, Business Major (1978–1982)  
 
 ---
