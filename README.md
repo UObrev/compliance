@@ -12,7 +12,7 @@ Compliance, Regulatory Governance & Corporate Asset Oversight
 
 ## Career Credentials
 
-### Medical Device Quality & Regulatory Compliance (FDA / ISO 13485)  
+### Medical Device Quality & Regulatory Compliance (FDA / ISO 13485), 2020 - 2025 
 **Clients:** Acutus Medical (Carlsbad, CA), Provisio Medical (San Diego, CA)
 
 - Ensured manufacturing and assembly workflows complied with FDA QSR (21 CFR Part 820) and ISO 13485 standards  
@@ -22,7 +22,7 @@ Compliance, Regulatory Governance & Corporate Asset Oversight
 
 ---
 
-### Sales Force Conduct Compliance  
+### Sales Force Conduct Compliance, 2007 - 2020  
 **Clients:** Pfizer (Beijing, China), Johnson & Johnson (Beijing, China), Novartis (Beijing, China), Eisai (Biogen) (Shanghai, China), Roche (Shanghai, China)
 
 - Ensured alignment with anti-bribery, anti-kickback, and healthcare regulations (CFDA/NMPA)  
@@ -32,7 +32,7 @@ Compliance, Regulatory Governance & Corporate Asset Oversight
 
 ---
 
-### Message Delivery Compliance  
+### Message Delivery Compliance, 2000 - 2007  
 **Clients:** Johnson & Johnson Medical (Beijing, China), Medtronic (Shanghai, China), Boston Scientific (Shanghai, China)
 
 - Designed digital training and e-learning programs to standardize sales calls and HCP interactions  
@@ -42,7 +42,7 @@ Compliance, Regulatory Governance & Corporate Asset Oversight
 
 ---
 
-### Corporate Compliance & Financial Governance  
+### Corporate Compliance & Financial Governance (1995 - 2000)
 **3G Cellular, Inc. – San Diego, CA**  
 Officer of Administration & Legal Affairs
 
@@ -50,9 +50,6 @@ Officer of Administration & Legal Affairs
 - Oversaw corporate legal matters including contracts and compliance  
 - Supported operational compliance through process controls  
 
----
-
-### Financial Control & Legal Affairs  
 **Promminent Communications, Inc. – San Diego, CA**  
 Financial Controller & Legal Affairs Officer
 
